@@ -1,1 +1,0 @@
-# nam-a5.github.io
